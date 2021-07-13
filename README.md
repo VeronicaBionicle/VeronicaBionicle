@@ -15,7 +15,7 @@ I’m the Master of Electrical Engineering in Electronics.
 # My contacts: #
 💬 [LinkedIn](https://www.linkedin.com/in/veronica-nenyuk "LinkedIn")
 
-💬 E-mail <veronikasuper1@mail.ru>
+💬 [E-mail](veronikasuper1@mail.ru)
 
 💬 [VK](https://vk.com/snipers.are.girls/ "VK")
 
